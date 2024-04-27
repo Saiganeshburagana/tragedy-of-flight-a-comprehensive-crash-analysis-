@@ -9,4 +9,4 @@ saiganesh buragana (20X21A0405)
 rajeswari boppudi (20X21A0404)
 
 by the of smat bride commuenity 
-thank you support
+thank you for support
